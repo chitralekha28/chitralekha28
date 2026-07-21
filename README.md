@@ -2,7 +2,7 @@
 
 AI/ML Engineer in the making — building multi-agent systems, computer vision pipelines, and full-stack products.
 
-[LinkedIn](https://www.linkedin.com/in/chitralekha-bairagi-180ba9290/) · [Portfolio](https://chitralekha28.github.io/portfolio/) · [Email](mailto:chitralekha2810@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/chitralekha-bairagi-180ba9290/) · [Portfolio](https://chitralekha28.github.io/portfolio/) · [Twitter](https://x.com/Jiya_tweet8x) · [Email](mailto:chitralekha2810@gmail.com)
 
 ---
 
